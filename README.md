@@ -26,6 +26,7 @@ This wasn’t planned, scripted, or part of any course — just a spontaneous bu
 
 **Picture**:
 ![WhatsApp Image 2025-05-19 at 01 43 20_b8b1d8b9](https://github.com/user-attachments/assets/e14ce426-d24e-4934-affc-a8c66c7927ce)
+![Operation Video in LinkedIn](https://lnkd.in/p/gqhGGUDY)
 
 
 **Tech Stack**:
